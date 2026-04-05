@@ -1,1 +1,1 @@
-welcom to my profile 
+welcome to my profile 
